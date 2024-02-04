@@ -3,13 +3,13 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=njerimuiruri" alt="njerimuiruri" /></a> </p>
 
-- 🌱 I’m currently learning **i'm a student at strathmore university and i'm currently laravel,**
+- 🌱 I’m currently learning **i'm a student at strathmore university and I'm currently learning AI,ML,**
 
 - 💬 Ask me about **laravel**
 
 - 📫 How to reach me **faith.muiruri@strathmore.edu**
 
-- ⚡ Fun fact **i think i'm funny, i love trying out new recipes**
+- ⚡ Fun fact **The First Webcam Was Used to Monitor a Coffee Pot**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
