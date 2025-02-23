@@ -52,7 +52,7 @@
 ---
 
 ### 📬 Let's Connect  
-📧 Email: [faith.muiruri@strathmore.edu](mailto:faith.muiruri@strathmore.edu)  
+📧 Email: [muirurinjeri4@gmail.com](mailto:muirurinjeri4@gmail.com)  
 🔗 LinkedIn: [linkedin.com/in/faith-njeri-76892b211](https://linkedin.com/in/faith-njeri-76892b211)  
 
 ---
